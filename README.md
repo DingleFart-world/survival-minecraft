@@ -1,0 +1,2 @@
+# survival-minecraft
+no cheats
